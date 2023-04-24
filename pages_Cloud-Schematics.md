@@ -1,0 +1,1 @@
+https://github.com/orgs/Cloud-Schematics/repositories https://github.com/orgs/Cloud-Schematics/repositories?page=2 https://github.com/orgs/Cloud-Schematics/repositories?page=3 https://github.com/orgs/Cloud-Schematics/repositories?page=4 https://github.com/orgs/Cloud-Schematics/repositories?page=5 https://github.com/orgs/Cloud-Schematics/repositories?page=6 
